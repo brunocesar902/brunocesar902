@@ -16,4 +16,4 @@ GitHub:
 https://github.com/brunocesar902
 
 LinkedIn:
-https://linkedin.com/in/brunocesardev/
+https://linkedin.com/in/brunocesar902/
